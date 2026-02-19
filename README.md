@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GAAA710325HVZRGR09
+GAAA710325HVZRGR09
